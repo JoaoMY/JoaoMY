@@ -1,5 +1,5 @@
 ## Bem vindo ao meu perfil 👺
-## Eu amo minha ex, volta pfvrrrr
+## Eu amo minha ex, volta pfvr ☹️
 ![](https://media.tenor.com/BP70qe8X0J8AAAAM/crycat-crying-cat.gif)
 <!--
 - 🔭 I’m currently working on ...
