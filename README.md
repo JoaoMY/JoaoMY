@@ -1,5 +1,5 @@
 ## Bem vindo ao meu perfil 👺
-
+## Eu amo minha ex
 ![](https://media1.tenor.com/m/weB7SDBJ1lgAAAAC/funny-smile.gif)
 <!--
 - 🔭 I’m currently working on ...
