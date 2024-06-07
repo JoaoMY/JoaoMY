@@ -1,5 +1,4 @@
-## Bem vindo ao meu perfil 👺
-[(https://media.tenor.com/BP70qe8X0J8AAAAM/crycat-crying-cat.gif)
+## Bem vindo ao meu perfil 🙅🏿‍♂️
 <!--
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
