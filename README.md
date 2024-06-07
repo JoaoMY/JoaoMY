@@ -1,6 +1,5 @@
 ## Bem vindo ao meu perfil 👺
-## Eu amo minha ex
-![](https://media.tenor.com/BP70qe8X0J8AAAAM/crycat-crying-cat.gif)
+(https://media.tenor.com/BP70qe8X0J8AAAAM/crycat-crying-cat.gif)
 <!--
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
